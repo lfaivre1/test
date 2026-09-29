@@ -7,4 +7,8 @@ Alors que Valbuena on souffle
 
 En vrai Mbappé il n'aura jamais le ballon d'or 
 Que il court genre dans les parties de foot
+<<<<<<< HEAD
 Ribery au lait
+=======
+
+>>>>>>> contrib-XXXtentacion
