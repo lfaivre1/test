@@ -1,4 +1,4 @@
-La scintillation de Chatillon,
+La scintillation de Châtillon,
 Donne aux entreprises une envie tatillonne
 De faire chanter les carillons
 
