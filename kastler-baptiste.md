@@ -1,3 +1,5 @@
-la scintillation de chatillon 
-donne aux entreprises une envie tatillonne 
-de faire chanter les carillons 
+La scintillation de Chatillon,
+Donne aux entreprises une envie tatillonne
+De faire chanter les carillons
+
+Eh j'aime trop Zizou la vie
